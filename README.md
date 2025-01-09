@@ -2,7 +2,7 @@
 - 🎓 MFA in DPA Graduate Student at Clemson University  
 - 🌱 I’m currently learning Python, C/C++
 - 🍜 Professional ramen stealer 
-- 📫 Email me at lkuperm@clemson.edu
+- 🍵 Matcha is my jam 
 - 😄 Pronouns: She/Her 
 - ⚡ Fun fact: I'm fluent in German
 
